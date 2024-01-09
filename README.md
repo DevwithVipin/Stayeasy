@@ -1,1 +1,1 @@
-# Stayeasy
+# Stay Easy
